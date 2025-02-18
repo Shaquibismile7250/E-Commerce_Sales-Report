@@ -82,3 +82,6 @@ The project was successful in answering the set of questions about the store's b
 
 
 I hope this is helpful! -->
+Contact for any questionns for further Information.
+Name: Mohammad Shaquib
+Emial: mohammadshaquib7250@gmail.com
